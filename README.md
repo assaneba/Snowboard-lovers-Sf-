@@ -1,4 +1,4 @@
-# Snowtricks
+# Snow Lovers
 
 
 Community website of snowboard lovers.
